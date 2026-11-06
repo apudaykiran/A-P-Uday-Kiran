@@ -20,7 +20,7 @@
 
 ## 📫 Connect With Me
 
-- GitHub: https://github.com/A-P-Uday-Kiran
+- GitHub: https://github.com/apudaykiran
 
 ---
 
